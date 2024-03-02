@@ -1,2 +1,0 @@
-# osmosqueteiros
-Team Os Mosqueteiros
